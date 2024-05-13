@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning runes
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- 😄 Pronouns: fasdasdas 
+- 😄 Pronouns: 
 - ⚡ Fun fact: .. efd
 test
 <!---
