@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @alziz101
 - 👀 I’m interested in crypto and gaming
 - 🌱 I’m currently learning runes
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on ...s
 - 😄 Pronouns: 
 - ⚡ Fun fact: .. adsw
   
