@@ -2,7 +2,7 @@
 - 👀 I’m interested in crypto and gaming
 - 🌱 I’m currently learning runes
 - 💞️ I’m looking to collaborate on ...!!s
-- 😄 Pronouns: 
+- 😄 Pronouns: !
 - ⚡ Fun fact: .. adsw
   
 <!---
