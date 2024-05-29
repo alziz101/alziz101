@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @alziz101
+- 👋 Hi, I’m @alziz101!
 - 👀 I’m interested in crypto and gaming
 - 🌱 I’m currently learning runes
 - 💞️ I’m looking to collaborate on NFTsad
