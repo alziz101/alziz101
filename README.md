@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @alziz101!
 - 👀 I’m interested in crypto and gaming
 - 🌱 I’m currently learning runes
-- 💞️ I’m looking to collaborate on NFTsad
+- 💞️ I’m looking to collaborate on NFTsad lets go
 - 😄 Pronouns: !!
 - ⚡ Fun fact: .. FINALLY!!!
   1
