@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning runes
 - 💞️ I’m looking to collaborate on NFTsad lets go
 - 😄 Pronouns: !!
-- ⚡ Fun fact: .. FINALLY!!!
+- ⚡ Fun fact: .. FINALLY!!!27 days left
   1
 <!---1
 alziz101/alziz101 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
