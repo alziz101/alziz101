@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning runes1da
 - 💞️ I’m looking to collaborate on NFTsad lets go1dwafrw
 - 😄 Pronouns: !!1sd1dsfgads
-- ⚡ Fun fact: .. FINALLY!1das3123
+- ⚡ Fun fact: .. FINALLY!1das3123da
   1ssadwafds
 <!---11
 alziz101/alziz101 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
