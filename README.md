@@ -2,7 +2,7 @@
 - 👀 I’m interested in crypto and gaming1
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on NFTsad lets go1dwafrw
-- 😄 Pronouns: !!1sd1dsfgads
+- 😄 Pronouns: !!
 - ⚡ Fun fact: .. FINALLY!a
   
 <!---11
