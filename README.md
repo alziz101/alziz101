@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on NFTsad lets go1dwafrw
 - 😄 Pronouns: !!
-- ⚡ Fun fact: .. FINALLY!a
+- ⚡ Fun fact: .. FINALLY!
   
 <!---11
 alziz101/alziz101 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
