@@ -2,7 +2,7 @@
 - 👀 I’m interested in crypto and gaming1
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on NFTsa
-- 😄 Pronouns: !!!
+- 😄 Pronouns: !!
 - ⚡ Fun fact: .. FINALLY
   
 <!---11
