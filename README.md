@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on NFT
 - 😄 Pronouns: !
-- ⚡ Fun fact: .. FINALLY11
+- ⚡ Fun fact: .. FINALLY
   1111
 <!---
 alziz101/alziz101 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
