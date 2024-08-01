@@ -1,5 +1,5 @@
 1- 👋 Hi, I’m @alziz101!
-- 👀 I’m interested in crypto and gaming1
+- 👀 I’m interested in crypto and gaming111
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on NFT
 - 😄 Pronouns: !
