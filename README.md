@@ -2,8 +2,7 @@
 - 👀 I’m interested in crypto and gaming11
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on NFTewd1
-- ⚡ Fun fact: .. FINALLY
-  1111
+- ⚡ Fun fact: .. FINALLYs
 <!---
 alziz101/alziz101 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
