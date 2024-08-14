@@ -1,7 +1,7 @@
 1- 👋 Hi, I’m @alziz101!
 - 👀 I’m interested in crypto and gaming11
 - 🌱 I’m currently learning dadaw
-- 💞️ I’m looking to collaborate on NFTewd1ads
+- 💞️ I’m looking to collaborate on NFTewd1adsadw
 - ⚡ Fun fact: .. FINALLY
 <!---
 alziz101/alziz101 is a ✨ special ✨ repository be1cause its `README.md` (this file) appears on your GitHub profile.
