@@ -1,6 +1,6 @@
 1- 👋 Hi, I’m @alziz101!
 - 👀 I’m interested in crypto and gaming11
-- 🌱 I’m currently learning dadaw!
+- 🌱 I’m currently learning dadaw!!
 - 💞️ I’m looking to collaborate on NFTewd1adsadw
 - ⚡ Fun fact: .. FINALLYa
 <!---aaaad
