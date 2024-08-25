@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on NFTewd1adsadw
 - ⚡ Fun fact: .. FINALLYa1
 <!---aaaad1
-alziz101/alziz101 is a ✨ special ✨ repository be1cause its `README.md` (this file) appears on your GitHub profile.
+alziz101/alziz101 is a ✨ special ✨ repository be1cause aits `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.!
 --->asd
